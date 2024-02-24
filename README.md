@@ -1,2 +1,0 @@
-# visi98
-student
